@@ -8,11 +8,6 @@
 
 <hr>
 
-**● Мои соц. сети:**
-
-[Discord-сервер](https://discord.gg/tMYfbecTWB)
-
-<hr>
 
 **● Мои проекты**
 
